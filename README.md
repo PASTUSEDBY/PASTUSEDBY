@@ -1,3 +1,3 @@
-Hii, I’m @PASTUSEDBY. I am a self taught programmer. I am quite busy with my life recently and focusing more on my studies!
+Hii, I’m @PASTUSEDBY, a self taught programmer. Quite busy for quite a while with my studies. (Competitive exams are brutal!)
 
-If you want to talk, feel free to contact me at Discord: `PASTUSEDBY#9296`, ID : `453961126351339530`. 
+If you want to talk, feel free to contact me at Discord: User: `pastusedby`, ID : `453961126351339530`. 
